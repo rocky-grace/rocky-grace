@@ -16,3 +16,7 @@ pls cuddle when i'm offtab/asleep! it means a lot to me ^_^
 <img width="220" height="350" alt="rockygrace" src="https://github.com/user-attachments/assets/23e2f1ab-99b6-462a-b388-c5d3b06c9a80" />
 
 
+<div align="center"> 
+ugh i wish someone could gift me a holland march or sebastian wilder pony....
+<div align="center"> 
+sighs loudly. . .sIGHS 👀
